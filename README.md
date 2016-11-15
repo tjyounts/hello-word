@@ -1,2 +1,10 @@
 # hello-word
-this is just the beginning
+This is just the beginning. Like whoa. 
+
+I like really long walks on the beach. Like Goa. 
+
+Chimichangas.
+
+Best wishes.
+
+Fishes. 
